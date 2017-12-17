@@ -1,0 +1,1 @@
+# simplecoin001
